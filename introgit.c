@@ -1,1 +1,0 @@
-heellohola quqe tal cpmp te va que frase mas vulgar con la que me voy a presentar
